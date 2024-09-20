@@ -1,2 +1,1 @@
-# temp
-my cute website uwu
+Welcome to my otter website!
