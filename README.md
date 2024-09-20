@@ -1,1 +1,3 @@
-Welcome to my otter website!
+Just an🦦 website about otters!
+
+https://🦦🦦.ws/
